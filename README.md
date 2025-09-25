@@ -16,8 +16,8 @@ MAPS
 
 DO NOT MENTION:
 POLITICS,
-SU*C*DE*,
-S/A
+SU*C*DE,*
+S/A*
 
 DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS. BEST TO ASK OR GIVE ME A WARNING, IF WE *ARE* FRIENDS.
 DO NOT FORCE SHIPS ON ME.
@@ -33,8 +33,10 @@ COS |roblox game|
 SOULDRIVENLOVE
 
 IWC IF YOU'RE IN THE:
-Project Moon Fandom,
-Dandy's World Fandom,
-FNAF Fandom,
+Project Moon Fandom,*
+Dandy's World Fandom,*
+FNAF Fandom,*
 Forsaken Fandom,
-Undertale Fandom.
+Undertale Fandom.*
+
+* / UNLESS FRIEND!
