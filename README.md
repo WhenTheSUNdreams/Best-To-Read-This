@@ -23,6 +23,7 @@ DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS. BEST TO ASK OR GIVE ME A WARNING
 DO NOT FORCE SHIPS ON ME.
 
 DNI IF YOU SUPPORT:
+SPAWNISM
 Yandere simulator
 REDFURTHEFOX
 Animatronic World |roblox game|
@@ -33,10 +34,10 @@ COS |roblox game|
 SOULDRIVENLOVE
 
 IWC IF YOU'RE IN THE:
-Project Moon Fandom,*
-Dandy's World Fandom,*
-FNAF Fandom,*
-Forsaken Fandom,
-Undertale Fandom.*
+Project Moon Fandom*
+Dandy's World Fandom*
+FNAF Fandom*
+Forsaken Fandom
+Undertale Fandom*
 
 * / UNLESS FRIEND!
