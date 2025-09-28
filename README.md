@@ -1,6 +1,12 @@
 # Best-To-Read-This
 Probably just DNIs, Boundaries, and Warnings tbh.
 
+**I DON'T mind if you:**
+Cover in any way, i can always readjust!
+Hide behind me.
+Whisper me, unless you're gonna say smth bad.
+Ask for supporter assistance in PT!
+
 **DNI IF YOU ARE:**
 >All the problematic "-ists"<
 |ex; ableist, racist|
@@ -23,7 +29,7 @@ Probably just DNIs, Boundaries, and Warnings tbh.
 **DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS.**
 **DO NOT FORCE SHIPS ON ME.**
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
-
+- *I am a 1x fictkin, and would prefer if doubles don't interact unless we are CLOSE friends.*
 
 **DNI IF YOU SUPPORT:**
 >SPAWNISM<
@@ -43,4 +49,4 @@ Probably just DNIs, Boundaries, and Warnings tbh.
 >Forsaken Fandom<
 >Undertale Fandom<
 
-**•/ UNLESS FRIEND!**
+**|•| UNLESS FRIEND!**
