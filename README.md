@@ -2,42 +2,45 @@
 Probably just DNIs, Boundaries, and Warnings tbh.
 
 DNI IF YOU ARE:
-All the problematic "-ists"
+>All the problematic "-ists"<
 |ex; ableist, racist|
 
-HOMOPHOBIC, TRANSPHOBIC, ETC.
-All problematic "-files"
+>HOMOPHOBIC, TRANSPHOBIC, ETC.<
+>All problematic "-files"<
 |ex; ZOOPHILE, PEDOFILE|
 
-A Darkshipper, Proshipper, etc.
+>A Darkshipper, Proshipper, etc.<
 
-MAPS
+>MAPS<
 |minor attracted person.|
 
-DO NOT MENTION:
-POLITICS,
-SU*C*DE,*
-S/A*
+>DO NOT MENTION:<
+>POLITICS,<
+>SU*C*DE,< |•|
+>S/A,<
+>S/H< |•|
 
-DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS. BEST TO ASK OR GIVE ME A WARNING, IF WE *ARE* FRIENDS.
-DO NOT FORCE SHIPS ON ME.
+>DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS.<
+>DO NOT FORCE SHIPS ON ME.<
+>Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.<
 
-DNI IF YOU SUPPORT:
-SPAWNISM
-Yandere simulator
-REDFURTHEFOX
-Animatronic World |roblox game|
 
-IWEC IF YOU SUPPORT:
-WCUE |roblox game|
-COS |roblox game|
-SOULDRIVENLOVE
+>DNI IF YOU SUPPORT:<
+>SPAWNISM<
+>Yandere simulator<
+>REDFURTHEFOX<
+>Animatronic World< |roblox game|
 
-IWC IF YOU'RE IN THE:
-Project Moon Fandom*
-Dandy's World Fandom*
-FNAF Fandom*
-Forsaken Fandom
-Undertale Fandom*
+>IWEC IF YOU SUPPORT:<
+>WCUE< |roblox game|
+>COS< |roblox game|
+>SOULDRIVENLOVE<
 
-* / UNLESS FRIEND!
+>IWC IF YOU'RE IN THE:<
+>Project Moon Fandom< |•|
+>Dandy's World Fandom< |•|
+>FNAF Fandom<
+>Forsaken Fandom<
+>Undertale Fandom<
+
+•/ UNLESS FRIEND!
