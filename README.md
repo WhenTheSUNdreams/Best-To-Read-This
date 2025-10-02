@@ -26,6 +26,7 @@ Ask for supporter assistance in PT!
 >S/A,<
 >S/H< |•|
 
+**DO NOT COPY OR TAKE HEAVY INSPIRATION, UNLESS WE ARE CLOSE FRIENDS. Even then, PLEASE ask or let me know in advance!**
 **DO NOT BE FREAKY WITH ME UNLESS WE ARE FRIENDS.**
 **DO NOT FORCE SHIPS ON ME.**
 **Do NOT call me 1 eggs, please, makes me uncomfortable. even as a joke.**
